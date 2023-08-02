@@ -1,2 +1,2 @@
-# vinu.github.io
-# vinu.github.io
+# vinuk.github.io
+# vinuk.github.io
